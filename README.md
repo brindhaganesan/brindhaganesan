@@ -1,4 +1,4 @@
-Software Engineer pivoted to the world of Data Science and Analytics
+Software Engineer pivoted to the world of Data Science and Analytics.
 Reach me @ brindhaganesan25@gmail.com
 
 <!---
