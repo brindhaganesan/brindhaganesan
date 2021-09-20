@@ -1,4 +1,4 @@
-I am a Software Engineer pivoted to the world of Data Science and Analytics.
+Fascinated by all things Data Science! 
 Reach me @ brindhaganesan25@gmail.com
 
 <!---
